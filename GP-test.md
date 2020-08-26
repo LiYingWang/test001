@@ -1,1 +1,1 @@
-Today is really hot day. 
+Today is really hot day. Really? I think it's cold.
